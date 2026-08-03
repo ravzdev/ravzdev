@@ -24,7 +24,7 @@ If you like what I’m doing and want to support ongoing development, here are a
 
 ### PayPal
 
-👉 [https://paypal.me/enqpne](https://paypal.me/ravzdev)
+👉 [https://paypal.me/ravzdev](https://paypal.me/ravzdev)
 
 ---
 ## ❤️ Thank You
