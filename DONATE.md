@@ -8,7 +8,7 @@ If you like what I’m doing and want to support ongoing development, here are a
 ## Ways to Support
 
 ### Patreon
-👉 [https://www.patreon.com/c/ravzdev](https://www.patreon.com/c/ravzdev)
+👉 [https://patreon.com/c/ravzdev](https://patreon.com/c/ravzdev)
 
 ---
 
